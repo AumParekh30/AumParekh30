@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning IT in CHARUSAT.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...parekhaum30@gmail.com
-- 😄 Pronouns: ...Aum
+- 😄 Pronouns: ...He
 - ⚡ Fun fact: ...null
 
 <!---
